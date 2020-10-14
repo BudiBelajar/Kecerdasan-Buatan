@@ -1,0 +1,2 @@
+# Kecerdasan-Buatan
+result study
